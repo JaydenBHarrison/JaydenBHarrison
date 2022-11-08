@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Jayden
 - 👀 I’m interested in Physics and Mathematics
 - 🌱 I’m currently learning Physics, Maths and Computer Science at Sixth Form College 
-- 💞️ I’m looking to collaborate on anything to do with maths would be nice
+- 💞️ I’m looking to collaborate on anything to do with maths
 - 📫 How to reach me: Call me 📞 
 
 <!---
