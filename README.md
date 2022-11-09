@@ -3,7 +3,7 @@
 - 👀 I’m interested in Physics and Mathematics
 - 🌱 I’m currently learning Physics, Maths and Computer Science at Sixth Form College 
 - 💞️ I’m looking to collaborate on anything to do with maths
-- 📫 How to reach me:
+- 📫 Twitter: @JaydenBHarrison
 
 
 ![df2620618291a6eb82322941c8650658-sticker](https://user-images.githubusercontent.com/117695663/200737180-35464859-3ee4-4eb3-8c48-c202895197f4.png)
