@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jayden
-- 🙎‍♂️ My gender is male
+- 🙎‍♂️ My pronouns are He/Him
 - 👀 I’m interested in Physics and Mathematics
 - 🌱 I’m currently learning Physics, Maths and Computer Science at Sixth Form College 
 - 💞️ I’m looking to collaborate on anything to do with maths
